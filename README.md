@@ -8,9 +8,10 @@
 
 # Đối với visa du lịch, việc không có sổ tiết kiệm có thể gây khó khăn, đặc biệt khi bạn đi tự túc. Trong trường hợp này, bạn có thể bổ sung các giấy tờ tài chính khác, kèm theo thư giải trình nguồn gốc tiền hoặc xác nhận của ngân hàng để tăng độ tin cậy. Đối với visa du học, các trường hợp không có sổ tiết kiệm vẫn có thể nộp hồ sơ nếu chứng minh được khả năng chi trả học phí và sinh hoạt phí trong ít nhất năm đầu tiên. Các giấy tờ chứng minh tài chính thay thế nên được chuẩn bị đầy đủ, có dấu xác nhận hợp lệ và trình bày rõ ràng để tránh bị từ chối.
 
-# 
+# Để biết thêm chi tiết, bạn có thể tham khảo bài viết tại: https://dichvutaichinh.vn/khong-co-so-tiet-kiem-xin-visa-duoc-khong.html
 
 # Ngoài ra, một số quốc gia còn chấp nhận các tài sản khác như bất động sản, cổ phiếu, chứng chỉ tiền gửi hoặc giấy tờ tài chính hợp pháp khác để chứng minh khả năng chi trả. Quan trọng là bạn cần nắm rõ yêu cầu cụ thể của cơ quan lãnh sự để chuẩn bị hồ sơ phù hợp, tránh tình trạng hồ sơ thiếu giấy tờ, thông tin không minh bạch dẫn đến việc bị từ chối.
+
 
 # 
 
